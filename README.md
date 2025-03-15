@@ -15,12 +15,20 @@ __reminder__ that i am an ***adult***. will often go to safe servers or 18+
 im also employed, i hate it here
 > weekdays, online on weekends
 
+# dni
+![M11718-die](https://github.com/user-attachments/assets/b2fb0cd8-da5f-4a4a-99c4-dfc87605af57)
+* proships
+* SOME certain shadow milk and burning spice fans.
+> <sup>yeah. you guys.</sup>
+* problematic lackeys
+* people who joke about ptsd or literally any disorder or mental illnesses
+* constant suggestive jokes unless close and an adult
 # interests
 > ### no main fandom, i switch communities and games very rapidly so its hard to keep up
 * crk (hb server, yurikingdomreal)
 * r99
 * alnst
-* roblox (p!, forsaken, args, etc.)
+* roblox (p!, forsaken, args, etc.) disk_eye
 * ultrakill
 * hannibal
 * alice in borderland
