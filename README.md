@@ -10,10 +10,10 @@ any pronouns, she or he are appreciated
 > other pronouns are okay to use i dont mind other pronouns other than she/he
 
 __reminder__ that i am an ***adult***. will often go to safe servers or 18+
-> offline mode means im on 18+ LOL also 16- interact with very *VERY* extreme caution or if we're already friends
+> 16- interact with very *VERY* extreme caution or if we're already friends
 
 im also employed, i hate it here
-> (weekdays, online on weekends)
+> weekdays, online on weekends
 
 # interests
 > ### no main fandom, i switch communities and games very rapidly so its hard to keep up
