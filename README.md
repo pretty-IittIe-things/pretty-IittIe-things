@@ -9,7 +9,7 @@
 any pronouns, she or he are appreciated
 > other pronouns are okay to use i dont mind other pronouns other than she/he
 
-__reminder__ that i am an ***adult***. will often go to safe servers or 18+
+__reminder__ that i am an ***adult***. will often go to safe servers or 18+ servers
 > 16- interact with very *VERY* extreme caution or if we're already friends
 
 im also employed, i hate it here
