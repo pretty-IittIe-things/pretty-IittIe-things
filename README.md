@@ -15,7 +15,7 @@ __reminder__ that i am an ***adult***. will often go to safe servers or 18+ serv
 im also employed, i hate it here
 > weekdays, online on weekends
 
-im taken by a real life girlfriend!!!! i love her very much
+im taken by a real life [girlfriend](https://github.com/thescaryyyjokes)!!!! i love her very much
 
 # dni
 ![M11718-die](https://github.com/user-attachments/assets/b2fb0cd8-da5f-4a4a-99c4-dfc87605af57)
