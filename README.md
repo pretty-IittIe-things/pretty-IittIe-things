@@ -26,6 +26,7 @@ im taken by a real life [girlfriend](https://github.com/thescaryyyjokes)!!!! i l
 * people who joke about ptsd or literally any disorder or mental illnesses
 * constant suggestive jokes unless close and an adult
 * shtwt, edtwt.... you get the rest
+* just have common sense, thanks
 # interests
 > ### no main fandom, i switch communities and games very rapidly so its hard to keep up
 * crk (hb server, yurikingdomreal)
