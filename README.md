@@ -19,7 +19,7 @@ im taken by a real life [girlfriend](https://github.com/thescaryyyjokes)!!!! i l
 
 # dni
 ![M11718-die](https://github.com/user-attachments/assets/b2fb0cd8-da5f-4a4a-99c4-dfc87605af57)
-* proships
+* ehh basic dni criteria!!! its a pony game lads 🐎
 * SOME certain shadow milk and burning spice fans.
 > <sup>yeah. you know who you guys are. theres a HUGE difference.</sup>
 * problematic lackeys
