@@ -4,3 +4,4 @@
 
 # yooooo im the elliott behind the 1x4 ts crazy
 ![Screenshot_20250726_084821](https://github.com/user-attachments/assets/64701045-2dc0-43ec-b782-bf3fa0de4e54)
+![Screenshot_20250726_092451](https://github.com/user-attachments/assets/3f679451-b12a-4db8-a5b9-5f29a6849396)
