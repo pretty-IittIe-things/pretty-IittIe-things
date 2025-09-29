@@ -1,1 +1,1 @@
-how do i make this better![GobW0gvXcAAdYEp](https://github.com/user-attachments/assets/21ec4c78-96ba-4a36-8dd8-fdc3c79a0450)
+arrrrghhh ![Tumblr_l_365293590279210](https://github.com/user-attachments/assets/e8285a64-469c-4026-b48e-9647317a6822)
