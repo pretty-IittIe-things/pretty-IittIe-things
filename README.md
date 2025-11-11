@@ -1,5 +1,5 @@
 ![Tumblr_l_1113668364435880](https://github.com/user-attachments/assets/eab13ec2-34ce-446e-8c3e-d8bdac36e9bc)
-# $\color{#77a7e7}{HEIDI~  .~  ANY~ PRONOUNS~  .~  GNDRFLUID~}$ fixing this later im tired
+$\color{#77a7e7}{HEIDI~ ~ ~ ✧~ ~ ~ ANY~ PRNS~}$
 
 <img width="1280" height="1280" alt="Untitled1139_20251110221857" src="https://github.com/user-attachments/assets/25ec68f3-60d0-41d1-abe5-711bddbf3783" />
 
